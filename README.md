@@ -5,3 +5,4 @@ The whole project file: https://drive.google.com/drive/folders/16KooSZnZsWZlTBy4
 
 The builded version: https://drive.google.com/drive/folders/1Af2ZhBme-2EG4odiBPSV1GwyTZ_Bnn_F?usp=sharing
 
+Video link: https://drive.google.com/drive/folders/1rhMRDJyHxScug3ZvJrDUMdeg7p2DS_q_?usp=share_link
